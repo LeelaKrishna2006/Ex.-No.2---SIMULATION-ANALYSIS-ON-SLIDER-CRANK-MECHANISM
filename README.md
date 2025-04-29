@@ -45,7 +45,7 @@
 ![Screenshot 2025-04-24 110612](https://github.com/user-attachments/assets/64a3948a-27d9-4701-842c-e0e321fa47c5)
 
 
-### Name:Paladi venkatesh vignesh
+### Name:ARANI VENKATA SUNDARA LEELA KRISHNA
 ### Register Number: 212224040229
 
 ## RESULT:
